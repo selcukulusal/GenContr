@@ -1,1 +1,1 @@
-assets for: https://selcuk-ulusal.itch.io/redsaw
+https://selcuk-ulusal.itch.io/redsaw
